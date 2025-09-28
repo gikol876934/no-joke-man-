@@ -1,3 +1,1 @@
-so nice
-siema
-siema
+ture man 
